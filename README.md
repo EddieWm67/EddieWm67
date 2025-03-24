@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @EddieWm67
 
+![-5057796794381085533_121](https://github.com/user-attachments/assets/a30aa2d2-e823-4d21-acbb-f2463da2ee96)
+![-5179380807360425909_121](https://github.com/user-attachments/assets/95112006-5b35-45c7-b30e-d0b575223d7c)
 
-![videoframe_249534 (1)-EDIT](https://github.com/user-attachments/assets/6237482b-8412-478a-90c5-551354ce8681)
-![IMG-20241220-WA0012](https://github.com/user-attachments/assets/11b062de-a703-4aee-a545-e4e643aa2942)
 
 - 👀 I’m interested in ... Material Design 
 - 🌱 I’m currently learning ...Figma & Now GitHub Collaborations Too. 
